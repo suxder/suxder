@@ -6,7 +6,7 @@
 
 - 🔥&nbsp;**Liu-Jiahao**
 - 💢 **Junior** at [HUBU](https://www.hubu.edu.cn/) 🇨🇳
-- 🏆 Driving the quill in ***[掘金](https://juejin.cn/user/4416070016570494/)*** & [***StackOverflow***](https://stackoverflow.com/users/16805680/wu-yikun) & ***[SegmentFault](https://segmentfault.com/u/suxder)*** 
+- 🏆 Driving the quill in ***[掘金](https://juejin.cn/user/4416070016570494/)***
 - 🥩  Fitness Enthusiast / Guitarist / Swimmer / Table Tennis Enthusiast / Programming Newcomer
 - 🍺  Chinese Chess / Chess / Rubik's Cube / Extracurricular Book
 - 💦 Personal website: [Under buliding]
